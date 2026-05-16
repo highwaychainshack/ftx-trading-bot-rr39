@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ftx trading bot secure Bot - latency-optimization and scalping, the #1 ftx trading bot. Includes latency-optimization and scalping for a smoother and
 
 
 
